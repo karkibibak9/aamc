@@ -1,0 +1,2 @@
+# aamc
+YOU GONNA DIE CLOWN.
